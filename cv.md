@@ -7,3 +7,5 @@
 
 
 ### I strive to learn neww things, to try it in practice.
+### Work expirience - outsorcing in IT. 
+### English - basic.
