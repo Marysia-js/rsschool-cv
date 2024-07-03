@@ -1,1 +1,1 @@
-# https://github.com/Marysia-js/rsschool-cv/cv
+# https://github.com/Marysia-js/rsschool-cv
